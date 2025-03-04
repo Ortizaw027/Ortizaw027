@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ortizaw027
-- 👀 I’m interested in hardware and digital design
+- 👀 I’m interested in almost anything computer related
 - 💞️ I’m looking to collaborate on anything I may find interesting
 - 📫 How to reach me -> Ortizaw027@gmail.com
 
